@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://shouyeheiliaoshe.pages.dev/">HL黑料门</a>
 
-点击访问：<a href="https://wangbaochiguahei.pages.dev/">黑料四区</a>
+点击访问：<a href="https://wangbaochiguahei.pages.dev/">手机搜狐网</a>
 
 点击访问：<a href="https://chiguabaoliao01.pages.dev/">51吃瓜不打烊</a>
 
@@ -59,4 +59,4 @@ Telegram频道传送门：汇集优质频道链接，涵盖黑料爆料、吃瓜
 
 《黑料大事记》专注整理娱乐圈与网络红人爆料事件，涵盖时间线、人物背景与舆论发展，帮助用户快速了解每起黑料的真相，全方位追踪热议焦点。
 
-[Canonical link](）
+[Canonical link](https://github.com/heiliaowang598/heiliaowang91727）
